@@ -1,1 +1,0 @@
-# Hasanmetin.github.io
